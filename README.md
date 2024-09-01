@@ -1,1 +1,1 @@
-# discord_bot2024
+# discord Server 24/7
